@@ -1,16 +1,14 @@
-### Hi there 👋
+### Hi there im DerZombiiie
 
-<!--
-**DerZombiiie/DerZombiiie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🔭 I’m currently working on "coding"
+- 🌱 I’m currently learning for school
+- 👯 I’m looking to collaborate on code
+- 🤔 I’m looking for help with life
+- 💬 Ask me about nothing (idk anything sooooo)
+- 📫 How to reach me: derz@elidragon.com
+- 😄 Pronouns: Me
+- ⚡ Fun fact: I was working on sth while I found this secret!
+- HAHA ich schreib das hier grad!!! krankenwagen4life
