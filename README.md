@@ -1,7 +1,7 @@
 ### Hi there im DerZombiiie
 
-
-Here are some ideas to get you started:
+Im an 14 year old would be coder!
+<- look there
 
 - 🔭 I’m currently working on "coding"
 - 🌱 I’m currently learning for school
