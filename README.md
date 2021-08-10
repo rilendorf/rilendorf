@@ -9,5 +9,5 @@ Im an 14 year old would be coder! | \/ look there
 - 💬 Ask me about nothing (idk anything sooooo)
 - 📫 How to reach me: derz@elidragon.com
 - 😄 Pronouns: Me
-- ⚡ Fun fact: I was working on sth while I found this secret!
+- ⚡ Fun fact: 1 + 1 = 2
 - HAHA ich schreib das hier grad!!! #krankenwagen4life
