@@ -8,6 +8,6 @@ Im an 14 year old would be coder! | \/ look there
 - 🤔 I’m looking for help with life
 - 💬 Ask me about nothing (idk anything sooooo)
 - 📫 How to reach me: derz@elidragon.com
-- 😄 Pronouns: Me
+- 😄 Pronouns: idc
 - ⚡ Fun fact: 1 + 1 = 2
 - HAHA ich schreib das hier grad!!! #krankenwagen4life
