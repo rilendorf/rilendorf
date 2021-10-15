@@ -1,6 +1,6 @@
 ### Hi there im DerZombiiie
 
-Im an 14 year old would be coder! | \/ look there
+Im an 15 year old would be coder! | \/ look there
 
 - 🔭 I’m currently working on "coding"
 - 🌱 I’m currently "learning" for school
