@@ -7,4 +7,4 @@ Im a 15 year old would be coder from germany. If you still want to continure rea
 - All about my projects: [Eds trash can](//github.com/Eds-trash-can/)
 - Check out my friends: [Fleckenstein](//github.com/Fleckenstein) and [HimbeerserverDE](https://github.com/HimbeerserverDE)
 - If your writing me a message, please only write in English or German
-- for pronouns, i only accept they, her, him
+- for pronouns, i only accept: they, her, him
