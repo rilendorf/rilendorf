@@ -1,13 +1,7 @@
 ### Hi there im DerZombiiie
 
-Im an 15 year old would be coder! | \\/ look there
+Im a 15 year old would be coder from germany. If you still want to continure reading about me or want to reach me, here are some links:
 
-- 🔭 I’m currently working on "coding"
-- 🌱 I’m currently "learning" for school
-- 👯 I’m looking to collaborate on code
-- 🤔 I’m looking for help with life
-- 💬 Ask me about anything you'd like
-- 📫 How to reach me: derz@elidragon.com
-- 😄 Pronouns: idc
-- ⚡ Fun fact: 1 + 1 = 2
-- HAHA ich schreib das hier grad!!! #krankenwagen4life
+If you want to reach me: [derz@elidragon.com](mailto:derz@elidragon.com)
+You can read my blog here: [blog.derzombiiie.com](https://blog.derzombiiie.com/)
+All about my projects: [Eds trash can](https://github.com/Eds-trash-can/)
