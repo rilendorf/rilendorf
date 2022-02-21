@@ -8,4 +8,4 @@ Im a 15 year old would be coder from germany. If you still want to continure rea
 - Check out my friends: [Fleckenstein](//github.com/Fleckenstein) and [HimbeerserverDE](https://github.com/HimbeerserverDE)
 - linktree: [linktr.ee](https://linktr.ee/derzombiiie)
 - If your writing me a message, please only write in English or German
-- for pronouns, i only accept: they, her, him
+- for pronouns, pls they / their in english communication for communication in german I don't care
