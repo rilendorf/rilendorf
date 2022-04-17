@@ -11,3 +11,4 @@ Im a 15 year old would be coder from germany. If you still want to continure rea
 - for pronouns, pls they / their in english communication for communication in german I don't care
 
 ![](https://raw.githubusercontent.com/DerZombiiie/github-stats/17c04c188f7539613167a96691545d7ca67673f2/generated/overview.svg)
+![](https://raw.githubusercontent.com/DerZombiiie/github-stats/17c04c188f7539613167a96691545d7ca67673f2/generated/languages.svg)
