@@ -1,6 +1,6 @@
 ### Hi there im DerZombiiie
 
-Im a 15 year old would be coder from germany. If you still want to continure reading about me or want to reach me, here are some links:
+Im a 16 year old would be coder from germany. If you still want to continure reading about me or want to reach me, here are some links:
 
 - If you want to reach me: [riley@e926.de](mailto:riley@e926.de)
 - You can read my blog here: [blog.derzombiiie.com](//blog.derzombiiie.com/)
