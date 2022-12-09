@@ -4,7 +4,7 @@ Im a 16 year old would be coder from germany. If you still want to continure rea
 
 - If you want to reach me: [riley@e926.de](mailto:riley@e926.de)
 - You can read my blog here: [blog.derzombiiie.com](//blog.derzombiiie.com/)
-- All about my projects: [Eds trash can](//github.com/Eds-trash-can/)
+- All about my projects: [elidragon v2.x](//github.com/ev2-1/); newer ones are in this profile older ones are in [Eds trash can](//github.com/Eds-trash-can/).
 - Check out my friends: [Fleckenstein](//github.com/Fleckenstein) and [HimbeerserverDE](https://github.com/HimbeerserverDE)
 - linktree: [linktr.ee](https://linktr.ee/derzombiiie)
 - If your writing me a message, please only write in English or German
